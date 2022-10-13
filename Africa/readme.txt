@@ -1,0 +1,1 @@
+African territories that are occupied by countries i.e France, micronations, and countries fighting for sovereign independence yet were not included or should be included to this directory during contribution.
