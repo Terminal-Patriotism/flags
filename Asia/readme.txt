@@ -1,0 +1,1 @@
+The following list refrains from adding the flag of Taiwan, because Taiwan is a controversial territory, that most countries have recognized "One-China" policy. Taiwan is not also a UN member, Taiwan can only be added to list if majority of countries in it's local area in Asia start recognizing Taiwan anf official diplomatic relations are kept.
